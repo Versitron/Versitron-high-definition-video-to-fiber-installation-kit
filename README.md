@@ -91,6 +91,5 @@ Explore **Versitron’s high definition, HD-CVI, HD-TVI, and AHD video to fiber 
 
 ---
 
-[Explore Video to Fiber Installation Kits](https://www.versitron.com/collections/video-fiber-optic-converters)
-
+[Explore Video to Fiber Installation Kits](https://www.versitron.com/collections/versivision-hd-video)
 ---
